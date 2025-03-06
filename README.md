@@ -1,4 +1,4 @@
-# Hey, I'm Jacob (🌊s)
+# Hey, I'm Jacob (🌊's)
 
 Undergraduate at Colby College
 
